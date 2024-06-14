@@ -9,8 +9,5 @@ Você pode entrar em contato comigo 📫
 
 00001118497119sp@al.educacao.sp.gov.br
 
-![](https://tenor.com/dMNKFjyl1iT.gif)
-
-
-
+![](https://tenor.com/vYTZdaQmhVN.gif)
 
